@@ -26,7 +26,7 @@ Insumos
 4) 241001 - IMPRESIÓN
 
 **En proceso:
-121003 - GRUPO ASEGURAMIENTO DE LA CALIDAD - Orfilia Ext 1641 - Me comuniqué con Marcela quien me indicó que hablara con Orfilia 
+121003 - GRUPO ASEGURAMIENTO DE LA CALIDAD - Ext 1641 - Me comuniqué con Muna persona del grupo y posteriormente, llamé vía extensión quien me indicó que podría dar trámite, repetí el proceso 2 días. 
 
 Se envió correo así a las 16:10 del 27 de febrero de 2026:
 
